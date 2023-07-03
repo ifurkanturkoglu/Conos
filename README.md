@@ -5,4 +5,4 @@ Contributes: <br />
   @ifurkanturkoglu  <br />
   @MehmetCanD  <br />
 
-video1 link: https://www.youtube.com/watch?v=G1a-O6vMLaI ](https://www.youtube.com/watch?v=CXBw_q8Nse8)https://www.youtube.com/watch?v=CXBw_q8Nse8
+video1 link: https://www.youtube.com/watch?v=CXBw_q8Nse8)https://www.youtube.com/watch?v=CXBw_q8Nse8
